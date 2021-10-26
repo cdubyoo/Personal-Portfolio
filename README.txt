@@ -1,1 +1,1 @@
-Person Portfolio for Chung Wong
+Person Portfolio for Jay Wong
